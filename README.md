@@ -1,0 +1,1 @@
+# segurolatino.github.io
